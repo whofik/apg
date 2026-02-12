@@ -1,5 +1,5 @@
-# 🎬 Program APS  
-_Alight Motion Premium Free 😂_
+# 🎬 Program APG  
+_Alight Motion Premium Geratis 😂_
 
 ---
 
@@ -57,4 +57,3 @@ untuk info akun dsb nya gw share ngacak di 2 ch ini, jan pada nyomot doang:v:
 
 ---
 
-© APS Program
